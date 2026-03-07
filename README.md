@@ -1,13 +1,14 @@
-# 👑 Foffe Lili Fideline
+# 👑 Nexora Empire
 
-Founder & CEO — **Nexora Empire**  
-Full-Stack Developer • Certified UI/UX Designer • Technopreneur • Woman in STEM  
+A software-first digital company
+Web • Apps • WordPress • UI/UX • AI Media • Ads • SEO & Brand Growth 🚀
+
 
 ### Powering the Future of Innovation.
 
 ---
 
-## 🚀 About Me
+## 🚀 About the Founder 
 
 I am **Foffe Lili Fideline**, a **Full-Stack Developer with 5+ years of experience**, **Certified UI/UX Designer**, **Technopreneur**, and **Woman in STEM**.
 
