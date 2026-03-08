@@ -141,4 +141,4 @@ Buea, Cameroon — Remote-first
 
 ---
 
-⭐ Follow the journey as we build the future through **Nexora Empire**..
+⭐ Follow the journey as we build the future through **Nexora Empire**.....
