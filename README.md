@@ -4,7 +4,7 @@ A software-first digital company
 Web • Apps • WordPress • UI/UX • AI Media • Ads • SEO & Brand Growth 🚀
 
 
-### Powering the Future of Innovation.
+### Powering the Future of Innovation..
 
 ---
 
